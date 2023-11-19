@@ -46,3 +46,4 @@ Graduated from the Belarusian State University of Informatics and Radioelectroni
 ## English
 
 **B1**
+I had a little practice cooperating in English mostly in writing.
